@@ -1,4 +1,4 @@
-
+even the greatest mountains fall, humbled by the wind, broken by time. and when the dust settles, no one remembers how tall they once stood.
 
 ### about the source
 
