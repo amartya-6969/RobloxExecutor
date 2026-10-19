@@ -17,12 +17,3 @@ this source was originally supposed to be released publicly. instead, i want it 
 
 thank you to **lucef** for the base. the environment is all me tho.
 he's a genuinely good developer, so go check him out.
-
-
-dont' skid, learn 
-
-good luck and farewell <3
-
-
-
-Love Dyn <3
